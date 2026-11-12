@@ -1,2 +1,1 @@
-Juan Ramón Ventaja Andrade
-Pablo Borrás Galante
+Juan Ramón Ventaja Andrade y Pablo Borrás Galante
